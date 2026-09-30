@@ -1,0 +1,1 @@
+# zimmermanphoto-post-assets
